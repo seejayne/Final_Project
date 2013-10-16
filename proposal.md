@@ -1,3 +1,3 @@
 For my final project, I'm going to... 
 
-DESTROY EVERYTHING
+DESTROY EVERYTHING. JK. I'll make something awesome.
